@@ -1,2 +1,2 @@
 # discord-larp
-in the work. created by wish, phobia, rockstar, epik and fusi. #DontPayToLarp
+unreleased, if you see this then keep your fucking mouth shut. will release soon :3 
